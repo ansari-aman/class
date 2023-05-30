@@ -1,0 +1,2 @@
+# class
+attending the class
